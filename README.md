@@ -1,8 +1,6 @@
-- 👋 hey, I’m @asiangirlari!
-- 👀 you found my little secret...
-- 🌱 if you're looking for the spicy link
-- 💞️ https://www.onlyfans.com/funsizedasian 
-- 📫 come say hi!
+👋 hey, I’m @asiangirlari!
+👀 you found my little secret...
+🌶️ the spicy link: https://www.onlyfans.com/funsizedasian 💬 come say hi!
 
 <!---
 asiangirlari/asiangirlari is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
