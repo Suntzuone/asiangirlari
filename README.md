@@ -1,4 +1,8 @@
-Hey, I’m Ari! 🤗 You found my little secret: onlyfans.com/funsizedasian 💕 Come say hi!
+Hey, I’m Ari! 🤗 
+
+You found my little secret: www.onlyfans.com/funsizedasian 💕 
+
+Come say hi!
 
 <!---
 asiangirlari/asiangirlari is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
